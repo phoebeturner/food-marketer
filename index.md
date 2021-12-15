@@ -2,8 +2,11 @@
 layout: base
 ---
 
-# Kucing Makan Sabun
+# Cara Memasarkan Produk Makanan
 
-Kalau kotor nanti di dalam rumahmu
+Ada banyak cara memasarkan produk makanan. Pertama, kita perlu riset pasar.
+Lalu memastikan bahwa kemasan dari produk makanan tersebut menarik.
+Kemudian manfaatkan media sosial untuk mempromosikan makanan tersebut.
+Lakukan juga kerjasama endorsement pada [food blogger Indonesia](https://vickyfahmi.com) dan buat perjanjian untuk perekaman Insight.
 
-Banyak [tikus](https://google.com) dan kotoran berdatangan.
+Dengan cara begini, produk makanan akan terpasarkan dengan jauh lebih mudah.
