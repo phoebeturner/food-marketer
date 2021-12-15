@@ -9,4 +9,4 @@ Lalu memastikan bahwa kemasan dari produk makanan tersebut menarik.
 Kemudian manfaatkan media sosial untuk mempromosikan makanan tersebut.
 Lakukan juga kerjasama endorsement pada [food blogger Indonesia](https://vickyfahmi.com) dan buat perjanjian untuk perekaman Insight.
 
-Dengan cara begini, produk makanan akan terpasarkan dengan jauh lebih mudah.
+Dengan cara begini, produk makanan akan terpasarkan dengan jauh lebih mudah, sehingga upaya marketing yang dikerjakan lebih efisien.
